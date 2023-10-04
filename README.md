@@ -1,5 +1,5 @@
 ### I'm an idiot who spends way too much time on the internet
 
-I make things, while being very shit at it, but i don't care.
+i make stuff or filler, or something else i really dont know tbh
 
-It is what it is.
+there isnt that much about me besides my 80000000 other socials
