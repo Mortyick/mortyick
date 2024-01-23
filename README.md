@@ -1,5 +1,5 @@
-### I'm an idiot who spends way too much time on the internet
+### skinny little bitch with no friends :)
 
-i make stuff or filler, or something else i really dont know tbh
+i make random ass shit lowkey
 
-there isnt that much about me besides my 80000000 other socials
+there isnt that much about me besides my 80000000 other socials and my garbage repos and my editing skills
