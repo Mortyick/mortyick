@@ -1,5 +1,5 @@
 # Hi, i suck!
 
-I don't do much with my github, but occasionally i make something here.
+I don't do much with my Github, but occasionally i make something here.
 
-For now i don't have much here besides crappy themes for mobile discord (iOS Client), but maybe i'll add more to this dumpster.
+The only things i really do here is shitpost occasionally, or do a little trolling.
