@@ -1,5 +1,5 @@
 # Hi, I'm an idiot!
 
-I don't do much with my Github, but occasionally i make something here.
+I am the definition of "professionally retarded" lol
 
-Granted I am very poor at whatever i like making.
+only really make iOS related stuff
