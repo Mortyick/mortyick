@@ -1,5 +1,5 @@
-# Hi, I'm an idiot!
+# I am a professional programmer, she lied.
 
-I am the definition of "professionally retarded" lol
+professionally retarded :/
 
-only really make iOS related stuff
+i only really make iOS related stuff occasionally
