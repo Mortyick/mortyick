@@ -1,5 +1,3 @@
-# I am a professional programmer, she lied.
-
-professionally retarded :/
+# I am bad at making things lmfao
 
 i only really make iOS related stuff occasionally
