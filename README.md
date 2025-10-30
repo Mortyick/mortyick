@@ -1,3 +1,3 @@
-# I am bad at making things lmfao
+# iOS enthusiast/geek
 
-i only really make iOS related stuff occasionally
+## Rarely do I ever actually contribute to something/make anything.
